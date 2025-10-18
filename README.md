@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **mariamabidi.ma@gmail.com**
 
-- ⚡ Fun fact **Love reading mystery books.**
+- ⚡ Fun fact **love reading mystery books.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
